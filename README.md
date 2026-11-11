@@ -1,0 +1,2 @@
+# YiTrans-ddopmago-
+YiTrans（ddopmago）
